@@ -1,4 +1,4 @@
-# Constant Contact Coupon Code 2025 – 40% OFF 9Get a Special Discount)
+# Constant Contact Coupon Code 2025 – 40% OFF (Get a Special Discount)
 
 Looking for a Constant Contact coupon code to save big on your email marketing plan?  
 You’re in luck! In this post, I’ll show you how to get **40% OFF Constant Contact** with an exclusive link.
