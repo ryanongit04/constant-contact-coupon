@@ -123,7 +123,7 @@ You can also try Constant Contact free for 30 days.
 
 ---
 
-## 🧠 Final Thoughts – Is Constant Contact Worth It?
+## Final Thoughts – Is Constant Contact Worth It?
 
 Yes, especially for beginners or small business owners who want an easy way to start email marketing.
 
@@ -135,12 +135,10 @@ And with this exclusive discount, there’s no better time to start:
 
 Whether you want to sell more products, nurture your audience, or simply stay top-of-mind, email marketing is one of the most reliable channels—and Constant Contact helps you do it without overwhelm.
 
----
-
-## 👋 Ready to Grow Your Business with Email?
+Ready to Grow Your Business with Email?
 
 Don't miss this limited-time opportunity.
 
-🎯 **[Click here to activate your 40% OFF Constant Contact plan »](https://constant-contact.ibfwsl.net/c/1400252/1015499/3411)**
-
 Start your free trial, test the features, and scale your growth with one of the best email marketing platforms out there.
+
+
